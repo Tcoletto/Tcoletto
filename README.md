@@ -1,4 +1,4 @@
-I'm an Electrician, Linux Enthusiast & a KJV Bible Fundamentalist
+I'm a Linux Enthusiast & a KJV Bible Fundamentalist
 
 - 👋 Hi, I’m Thomas Coletto
 - 👀 I’m interested in Cybersecurity
